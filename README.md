@@ -1,1 +1,0 @@
-# e-cop-privacy-policy
